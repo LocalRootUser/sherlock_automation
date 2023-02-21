@@ -51,3 +51,7 @@ Probably after some time.
 
 3 days. (I know pathetic)
 
+
+### plz dont sue me
+
+All sherlock project right go to the Contributors that made sherlock and dont forget the Original Creator - Siddharth Dushantha <3
