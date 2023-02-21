@@ -54,4 +54,4 @@ Probably after some time.
 
 ### plz dont sue me
 
-All sherlock project right go to the Contributors that made sherlock and dont forget the Original Creator - Siddharth Dushantha <3
+All sherlock project rights go to the Contributors that made sherlock and dont forget the Original Creator - Siddharth Dushantha <3
